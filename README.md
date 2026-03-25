@@ -40,4 +40,4 @@ Identify target customer groups
 Optimize marketing campaigns during festive seasons
 Focus on high-demand product categories to maximize revenue.
 
-Link:
+Link:https://drive.google.com/drive/u/0/folders/1eljAG6PBhRQ8VbE2_fkfIls3-UXROc4O
